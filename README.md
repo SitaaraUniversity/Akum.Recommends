@@ -6,4 +6,4 @@ https://en.wikipedia.org/wiki/Voynich_manuscript
 https://en.wikipedia.org/wiki/Patkai
 
 https://en.wikipedia.org/wiki/Patkai_Christian_College
-- Studied Bachelor of Commerce with Specialization in Accounting & Finance.
+- Akum Studied Bachelor of Commerce with Specialization in Accounting & Finance!
