@@ -5,3 +5,5 @@ https://en.wikipedia.org/wiki/Voynich_manuscript
 
 https://en.wikipedia.org/wiki/Patkai
 
+https://en.wikipedia.org/wiki/Patkai_Christian_College
+
